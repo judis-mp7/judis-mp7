@@ -13,6 +13,8 @@
 
 - considero mi nivel en programación🤡 **un 5 de 10**
 
+- 🐥eso seria todo **, gracias🤞🏼**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/prietomojudith" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="prietomojudith" height="30" width="40" /></a>
